@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Data Science ...
 - 💞️ I’m looking to collaborate on data analysis projects...
 - 📫 How to reach me -- nmadhu0417@gmail.com
-- ![LinkedIn](https://github.com/Madhavi3N/Madhavi3N/assets/146516099/31a904bc-7f82-41d2-90c9-863263119a86) LinkedIn profile -- https://linkedin.com/in/madhavin7
--  😄 Pronouns: she/her
+- ![LinkedIn](https://github.com/Madhavi3N/Madhavi3N/assets/146516099/d5b6c32e-79bc-4687-82dd-871bd4e677f6) LinkedIn profile -- https://linkedin.com/in/madhavin7
+- 😄 Pronouns: she/her
 - 🤩 I love to learn new things 😉 ...
 
 <!---
