@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on data analysis projects...
 - 📫 How to reach me -- nmadhu0417@gmail.com
 - ![Linkedin-PNG](https://github.com/Madhavi3N/Madhavi3N/assets/146516099/b952cabb-e2e4-45a8-8d1f-9f0467166042)  LinkedIn profile -- https://linkedin.com/in/madhavin7
+-   Medium profile -- https://medium.com/@MadhaviN
 - 😄 Pronouns: she/her
 - 🤩 I love to learn new things 😉 ...
 
